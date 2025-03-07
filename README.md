@@ -1,4 +1,4 @@
-<h1 align="center">✦ Yυƙι-Sυσυ-Bσƚ ✦</h1>
+<h1 align="center">✦ 『𝓐𝔁𝓮𝓵 𝓑𝓸𝓽』</h1>
 
  <img src= "https://ibb.co/4nNK51dq">
     </p>
